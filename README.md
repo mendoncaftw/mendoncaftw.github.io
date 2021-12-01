@@ -1,1 +1,1 @@
-[Linkedin Profile](mendoncaftw.github.io)
+mendoncaftw.github.io
